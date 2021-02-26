@@ -1,1 +1,1 @@
-# stgregw
+# strgv12reg
